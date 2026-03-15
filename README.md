@@ -1,6 +1,6 @@
 ## Hi there, I'm Tihitina! ✨
 
-🧠 Computer Information Technology and Data Science Student at Minnesota State University<br/>
+🧠 Computer Science and Data Science Student at Minnesota State University<br/>
 🤝 Passionate about collaboration and community impact<br/>
 🥽 I love creating projects that reflect my interests and hobbies<br/>
 
